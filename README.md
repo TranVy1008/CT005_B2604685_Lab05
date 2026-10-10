@@ -1,3 +1,0 @@
-# CT005_B2604685_Lab05
-GOOGLE FORM NHẬP THÔNG TIN SINH VIÊN KHÓA 52: https://forms.gle/TxVtuveW2sP4Vp4s8
-GOOGLE FORM ĐĂNG KÝ THAM QUAN CÔNG TY TMA: https://forms.gle/9ARDa9K8bNy4gceq8
